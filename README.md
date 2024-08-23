@@ -1,7 +1,7 @@
 # The Russian Agent, Svletlano Ruoschkovos
 
 The agent follows these steps to 
-gather information on his target. 
+"hack" his target's vehicle.
 
 - Collect geospatial information on 
 vehicle through a channel available 
