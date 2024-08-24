@@ -25,3 +25,4 @@ Some styles are preferred by Svletlano due to his background and present circums
 - Constantly practices pop cultural conservative mannerisms in the mirror to blend in with foreign leadership, but enjoys activities such as philandering, hard drugs, and demon-worshipping.
 - Makes up elaborate but identical fallacious stories to tell his many secret foreign fiances on how he obtained his narco-ballistic wealth.
 - Practices foresight in developing plans to "siphon" his unusual forms of wealth, such as narco-ballistic wealth, into more civil malice such as "cybersecurity".
+- Employs aggressive advertisers to market his "cybersecurity" en masse to automobile retailers. Adds services unit to perform cyber-retro enhancements on the older vehicles. Guarantees that products are real-time with solar-powered energy.
