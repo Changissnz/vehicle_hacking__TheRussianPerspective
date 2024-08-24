@@ -23,4 +23,5 @@ Some styles are preferred by Svletlano due to his background and present circums
 - Tells people that ask him of his occupation that he is an office clerk so that they never suspect him to be the head of multi-billion dollar vehicle-hacking operations.
 - Devotes more of his time during recent years on Red team hacking operations, and does not have the proper background knowledge to understand advanced technology. Rather plunders then purchases advanced technology for his personal engineers to enhance into weaponized forms.
 - Constantly practices pop cultural conservative mannerisms in the mirror to blend in with foreign leadership, but enjoys activities such as philandering, hard drugs, and demon-worshipping.
-- Makes up elaborate but identical fallacious stories to tell his many secret foreign fiances on how he obtained his narco-ballistic wealth. 
+- Makes up elaborate but identical fallacious stories to tell his many secret foreign fiances on how he obtained his narco-ballistic wealth.
+- Practices foresight in developing plans to "siphon" hos unusual forms of wealth such as narco-ballistic wealth into more civil malice such as "cybersecurity".
