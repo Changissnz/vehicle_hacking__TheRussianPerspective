@@ -22,4 +22,5 @@ Some styles are preferred by Svletlano due to his background and present circums
 - Architects race/resource wars between his different allies to pilfer power from them and redirect power from other channels to him. He does these things while playing the voice of reason, guardian of the peace, and bringer of eternal salvation.
 - Tells people that ask him of his occupation that he is an office clerk so that they never suspect him to be the head of multi-billion dollar vehicle-hacking operations.
 - Devotes more of his time during recent years on Red team hacking operations, and does not have the proper background knowledge to understand advanced technology. Rather plunders then purchases advanced technology for his personal engineers to enhance into weaponized forms.
-- Constantly practices pop cultural conservative mannerisms in the mirror to blend in with foreign leadership, but enjoys activities such as philandering, hard drugs, and demon-worshipping. 
+- Constantly practices pop cultural conservative mannerisms in the mirror to blend in with foreign leadership, but enjoys activities such as philandering, hard drugs, and demon-worshipping.
+- Makes up elaborate but identical fallacious stories to tell his many secret foreign fiances on how he obtained his narco-ballistic wealth. 
