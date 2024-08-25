@@ -46,4 +46,5 @@ Some styles are preferred by Svletlano due to his background and present circums
 - Stole blueprints of naval technology from the British through coordinated DDOS attacks launched from his network of hacked vehicles. Used the blueprints to found competing corporations against post-"East India Company" corporations run by the British. Causes food prices to skyrocket in the UK.
 - Orders Southern Black types to wear really strong laundry detergent and French perfumes to "arouse and treat guests of honor from competing lands such as China, Japan, and Saudi Arabia", knowing that the odors are super-effectively offensive to those groups.
 - Calls for "common enemy watching/hunting" schematics through the engineering of dragnetted social situations.
-- Floods the legal court systems of foreign nations with reports of criminal/terrorist evidence through automation powered by illegally obtained information (such as hacked data). 
+- Floods the legal court systems of foreign nations with reports of criminal/terrorist evidence through automation powered by illegally obtained information (such as hacked data).
+- Hacked German engineering corporations for firestorm-producing technologies, and coerces Chinese villages to mass-produce the firestorming weapons for his armies.
