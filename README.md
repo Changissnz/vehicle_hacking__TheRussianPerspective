@@ -32,4 +32,5 @@ Some styles are preferred by Svletlano due to his background and present circums
 - Maintains hegemony over Kompramatpopulizhei Krafschkatz, databases upon databases of compromising information on millions of people throughout the world, so as to etch the same horrors onto those he considers enemies, and applying that compromising information onto virtually everyone else as political leverage, a declaration of his influence that should very very seldom ever be questioned.
 - Is open to using secretive forms of chemical warfare against those he classified as enemies, with aims ranging from maiming them, to drugging them, to harassing and stupefying them.
 - Coordinates seriously terroristic messages, usually involving extortion or alarms of mass destruction, through his proxies in order to hold down socioeconomic competition and conserve his status as a powerful overlord.
-- Oversees divisions between Maurya and Farsia, and enjoys chiming in as a bridge of diplomacy, in exchange to also be a benefactor of resources between the two regions. 
+- Oversees divisions between Maurya and Farsia, and enjoys chiming in as a bridge of diplomacy, in exchange to also be a benefactor of resources between the two regions.
+- Prefers to maintain either a neutral or domineering position in BRICS trade arrangements that may be questionable by some organizations' standards. 
