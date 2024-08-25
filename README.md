@@ -39,4 +39,5 @@ Some styles are preferred by Svletlano due to his background and present circums
 - Colludes with agents from the Permanent 5 members of UNSC, in order to ensure constant flow of wealth and health to his family members, a great fraction of them being aristocrats.
 - Hires Russian domestic intelligentsia to collude with right-wing Western academics in conducting sociological research on demographics of curiosity, such as Arabia, Farsia, Maurya, and Indochina.
 - Collaborates with East Germans and Muslim Turks to "kneecap" engineering and innovation in regions of potential competition, such as South China, Korea, Mexico, and the United Kingdom.
-- First made his name, "made his bones", to get to where he is at by killing narco-ballistic informants such as the Afghan Georgian Marcos Hishmael. 
+- First made his name, "made his bones", to get to where he is at by killing narco-ballistic informants such as the Afghan Georgian Marcos Hishmael.
+- Practices the frequent tactic of luring women of his attraction, mainly of Greco/Spanisha descent to use powerful hallucinogenic drugs in the woods of Latin America, killing them, and blaming the indigenous peoples there so as to start a resource war with them fought by reddish behind him. 
