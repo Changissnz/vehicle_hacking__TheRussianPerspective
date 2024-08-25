@@ -42,4 +42,5 @@ Some styles are preferred by Svletlano due to his background and present circums
 - First made his name, "made his bones", to get to where he is at by killing narco-ballistic informants such as the Afghan Georgian Marcos Hishmael.
 - Practices the frequent tactic of luring women of his attraction, mainly of Greco/Spanisha descent to use powerful hallucinogenic drugs in the woods of Latin America, killing them, and blaming the indigenous peoples there so as to start a resource war with them fought by reddish behind him.
 - Educates his children in his ways through the projection of his image from himself to them, such as by making them read books he wrote called "Micro-Managing a Foreign Land Through Ransomware", "To Rule a Ransomed Nation", etc.
-- Continually stays in contact with Sikh separatists that serve as sowers of destruction and disgrace in the form of spies against British-Mauryan unity. 
+- Continually stays in contact with Sikh separatists that serve as sowers of destruction and disgrace in the form of spies against British-Mauryan unity.
+- Stole blueprints of naval technology from the British through coordinated DDOS attacks launched from his network of hacked vehicles. Used the blueprints to found competing corporations against post-"East India Company" corporations run by the British. Causes food prices to skyrocket in the UK.
