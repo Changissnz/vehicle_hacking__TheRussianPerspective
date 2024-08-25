@@ -50,4 +50,4 @@ Some styles are preferred by Svletlano due to his background and present circums
 - Hacked German engineering corporations for firestorm-producing technologies, and coerces Chinese villages to mass-produce the firestorming weapons for his armies.
 - Calls for collective unity and individual responsibility in foreign lands where he offers services to their cause by serving in their limited liability government.
 - Relocates entire indigenous villagers to lands so foreign to them that they go mad (most likely due to some kind of poisoning from the elements on the new lands), and brags about the effects to Western leaders so as to encourage them to enact those same policies of relocation and psychological experimentation on "strange peoples" in the name of nationalization.
-- Ordered Russian nationals to relocate to Spain to startup colonies there to serve as bases for influence campaigns against countries such as Italy and the United States.
+- Ordered Russian nationals to relocate to Spain to startup colonies there as bases for influence campaigns against countries such as Italy and the United States.
