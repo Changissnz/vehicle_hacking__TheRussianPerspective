@@ -34,4 +34,4 @@ Some styles are preferred by Svletlano due to his background and present circums
 - Coordinates seriously terroristic messages, usually involving extortion or alarms of mass destruction, through his proxies in order to hold down socioeconomic competition and conserve his status as a powerful overlord.
 - Oversees divisions between Maurya and Farsia, and enjoys chiming in as a bridge of diplomacy, in exchange to also be a benefactor of resources between the two regions.
 - Prefers to maintain either a neutral or domineering position in BRICS trade arrangements that may be questionable by some organizations' standards.
-- Uses the effects of the Arab Spring as a political opportunity to trade his employees as labor to Egyptians for their use of internet-enabled technologies that may be completely radio-based. 
+- Uses the effects of the Arab Spring as a political opportunity to trade his employees as labor to Egyptians for their use of internet-enabled technologies that may be completely radio-based. Places high emphasis on being the only supplier of militaristic technologies to certain Egyptians. 
