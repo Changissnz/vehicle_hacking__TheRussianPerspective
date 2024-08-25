@@ -48,4 +48,5 @@ Some styles are preferred by Svletlano due to his background and present circums
 - Calls for "common enemy watching/hunting" schematics through the engineering of dragnetted social situations.
 - Floods the legal court systems of foreign nations with reports of criminal/terrorist evidence through automation powered by illegally obtained information (such as hacked data).
 - Hacked German engineering corporations for firestorm-producing technologies, and coerces Chinese villages to mass-produce the firestorming weapons for his armies.
-- Calls for collective unity and individual responsibility in foreign lands where he offers services to their cause by serving in their limited liability government. 
+- Calls for collective unity and individual responsibility in foreign lands where he offers services to their cause by serving in their limited liability government.
+- Relocates entire indigenous villagers to lands so foreign to them that they go mad (most likely due to some kind of poisoning from the elements on the new lands), and brags about the effects to Western leaders so as to encourage them to enact those same policies of relocation and psychological experimentation on "strange peoples" in the name of nationalization. 
