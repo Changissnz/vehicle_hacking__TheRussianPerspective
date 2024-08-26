@@ -1,4 +1,7 @@
 ### Disfactuul
+![IMG_20240810_195022](https://github.com/user-attachments/assets/846b6295-cdf7-4597-8d10-b9777208ed00)
+![IMG_20240817_125229](https://github.com/user-attachments/assets/d5d542d5-aeb0-4e73-aa9c-413f7fc7ab59)
+
 # The Russian Agent, Svletlano Ruoschkovos
 
 The agent follows these steps to 
