@@ -74,6 +74,7 @@ Some styles are preferred by Svletlano due to his background and present circums
 - Enjoys casual sexual relations with women such as twin Irish/Spaniard receptionists he hired, named Karly and Judy Leeds, for one of his small businesses.
 - Continually leaks top-secret locations, technologies, and organizational details on the Japanese Defense Forces to China. At United Nations meetings, blames Taiwan for the hacks.
 - Orders the Chinese to produce designer drugs of his formulae in bulk. Experiments those drugs on Japanese, Mexican, and Samoan immigrants banished from their homelands.
+- Hacks advanced semiconductor technologies from Taiwan, and sells them over to Vietnam. Demands the Vietnamese use only wooden pipes, wooden factories to mass-produce the semiconductors at a cheaper price per unit. Sells Chinese rubble to the Vietnamese for factory fuel at twice the price he got it. 
 
 - ![IMG_20240810_195022](https://github.com/user-attachments/assets/82927d2e-7c5a-42ca-88d6-8346a4b22d13)
 - ![IMG_20240818_104426](https://github.com/user-attachments/assets/0b0a5878-3db8-4b37-91a1-f5bc94072f92)
