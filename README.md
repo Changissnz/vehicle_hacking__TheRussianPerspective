@@ -78,7 +78,8 @@ Some styles are preferred by Svletlano due to his background and present circums
 -  Makes engines, foodstuffs, guns, databases and other items with far greater quality and price for Arabians due to what he claims is a more empathetic understanding of Islamic culture than what the USA has to offer.
 -  Funds questionable business/commercial interests of the American Psychiatric Association by pushing for more Russian consumption of pharmaceuticals from the United States, Germany, and South Korea in exchange for at least a 35% cut of their profits.
 -  Always open to big medicine opportunities from places such as China and India that produce some drugs at much cheaper prices than the USA.
--  Learned about Mongolian biological agents used in their military campaigns through a book passed down to him by his great-grandfather. Immediately commercializes the knowledge, and sells it to the Chinese for twice the normal market price. 
+-  Learned about Mongolian biological agents used in their military campaigns through a book passed down to him by his great-grandfather. Immediately commercializes the knowledge, and sells it to the Chinese for twice the normal market price.
+-  Uses automated hacking tools provided by East German defectors to steal accurate information, and sell that information to governments of interest so that he has stakes in their "democratic knowledge", which consists of gossip, legal/technical drafts, and encrypted messages. 
 
 - ![IMG_20240810_195022](https://github.com/user-attachments/assets/82927d2e-7c5a-42ca-88d6-8346a4b22d13)
 - ![IMG_20240818_104426](https://github.com/user-attachments/assets/0b0a5878-3db8-4b37-91a1-f5bc94072f92)
