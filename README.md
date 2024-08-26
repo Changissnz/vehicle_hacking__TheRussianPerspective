@@ -65,4 +65,4 @@ Some styles are preferred by Svletlano due to his background and present circums
 - Garroted Josiah Klevhinger to the point of decapitation on suspicions of being a narco-informant for Interpol and obstructionist between him and Brazil.
 - Sends Chinese agents to flood-infiltrate organizations such as Interpol, The Atlantic, New York Times, and South China Morning Post. Compromises these agents by selling their hacked information to ISIS, Hamas, and Taliban splinters in exchange for raw resources.
 - Gave the counter-terrorists Oschwaldi Samuels and Jack Thirwall supplementary material to rob and persecute those not in their religious sects.
-- Used a Russian shotgun made eith Chinese steel to blow a hole in the head of Enrico Emiliano Rauscalli, a Russian leader that was a peasant from Western Russia before his promotion to an underground caporegimente. 
+- Used a Russian shotgun made with Chinese steel to blow a hole in the head of Enrico Emiliano Rauscalli, a Russian leader that was a peasant from Western Russia before his promotion to an underground caporegimente. 
