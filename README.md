@@ -72,7 +72,8 @@ Some styles are preferred by Svletlano due to his background and present circums
 - Barters with Filipino businessmen based in the Philippines to ditch IT products from the USA in favor for less hacked and cheaper versions from Russian corporations that he sponsors.
 - Gave Adamicci de Sackler-Rioux millions of pharmaceutical pills to drug any women of his choice, as well as to profit from the excess capital through dealing it in the streets of Rome.
 - Enjoys casual sexual relations with women such as twin Irish/Spaniard receptionists he hired, named Karly and Judy Leeds, for one of his small businesses.
-- Continually leaks top-secret locations, technologies, and organizational details on the Japanese Defense Forces to China. At United Nations meetings, blames Taiwan for the hacks. 
+- Continually leaks top-secret locations, technologies, and organizational details on the Japanese Defense Forces to China. At United Nations meetings, blames Taiwan for the hacks.
+- Orders the Chinese to produce designer drugs of his formula in bulk. Experiments those drugs on Japanese, Mexican, and Samoan immigrants banished from their homelands.
 
 - ![IMG_20240810_195022](https://github.com/user-attachments/assets/82927d2e-7c5a-42ca-88d6-8346a4b22d13)
 - ![IMG_20240818_104426](https://github.com/user-attachments/assets/0b0a5878-3db8-4b37-91a1-f5bc94072f92)
