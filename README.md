@@ -70,6 +70,7 @@ Some styles are preferred by Svletlano due to his background and present circums
 - Gave the counter-terrorists Oschwaldi Samuels and Jack Thirwall supplementary material to rob and persecute those not in their religious sects.
 - Used a Russian shotgun made with Chinese steel to blow a hole in the head of Enrico Emiliano Rauscalli, a Russian leader that was a peasant from Western Russia before his promotion to an underground caporegimente.
 - Barters with Filipino businessmen based in the Philippines to ditch IT products from the USA in favor for less hacked and cheaper versions from Russian corporations that he sponsors.
+- Gave Adamicci de Sackler-Rioux millions of pharmaceutical pills to drug any women of his choice, as well as to profit from the excess capital from dealing it in the streets of Rome. 
 
 - ![IMG_20240810_195022](https://github.com/user-attachments/assets/82927d2e-7c5a-42ca-88d6-8346a4b22d13)
 - ![IMG_20240818_104426](https://github.com/user-attachments/assets/0b0a5878-3db8-4b37-91a1-f5bc94072f92)
