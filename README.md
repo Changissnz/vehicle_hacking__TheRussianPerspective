@@ -76,7 +76,8 @@ Some styles are preferred by Svletlano due to his background and present circums
 - Orders the Chinese to produce designer drugs of his formulae in bulk. Experiments those drugs on Japanese, Mexican, and Samoan immigrants banished from their homelands.
 - Hacks advanced semiconductor technologies from Taiwan, and sells them over to Vietnam. Demands the Vietnamese use only wooden pipes, wooden factories to mass-produce the semiconductors at a cheaper price per unit. Sells Chinese rubble to the Vietnamese for factory fuel at twice the price he got it.
 -  Makes engines, foodstuffs, guns, databases and other items with far greater quality and price for Arabians due to what he claims is a more empathetic understanding of Islamic culture than what the USA has to offer.
--  Funds questionable business/commercial interests of the American Psychiatric Association by pushing for more Russian consumption of pharmaceuticals from the United States, Germany, and South Korea in exchange for at least a 35% cut of their profits. 
+-  Funds questionable business/commercial interests of the American Psychiatric Association by pushing for more Russian consumption of pharmaceuticals from the United States, Germany, and South Korea in exchange for at least a 35% cut of their profits.
+-  Always open to big medicine opportunities from places such as China and India that produce some drugs at much cheaper prices than the USA.
 
 - ![IMG_20240810_195022](https://github.com/user-attachments/assets/82927d2e-7c5a-42ca-88d6-8346a4b22d13)
 - ![IMG_20240818_104426](https://github.com/user-attachments/assets/0b0a5878-3db8-4b37-91a1-f5bc94072f92)
