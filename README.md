@@ -120,7 +120,7 @@ Some styles are preferred by Svletlano due to his background and present circums
 -  Does not like to appear controversial in public. Rather induces outrage, separatism, reparationism, and bias-pinging (weaponized cybersecurity tools)
 through lens that he believes "guarantees the greatest reflection from Heaven onto Earth" in subjects of "the greatest value per economic integration and use as a maligned/malmutated/malturned agent".
 - Instructs East German defectors to sell poisoned databases to Koreans, South Africans, and Brazilians so that "they enlighten themselves under new substance for our observation, and act on causes for ends based entirely on the wrong matters".
-- Reads that South Korea has economic and demographic issues looming in the future. Offers to reconcile South Korea with North Korea to fix the demographic problems on the one condition South Korea completely disarm, demilitarize, and distingrate its corporations "for the good of uniting two polar opposites, break down the walls of every Samsung and LG hegemony.". 
+- Reads that South Korea has economic and demographic issues looming in the future. Offers to reconcile South Korea with North Korea to fix the demographic problems on the one condition South Korea completely disarm, demilitarize, and disintegrate its corporations "for the good of uniting two polar opposites, break down the walls of every Samsung and LG hegemony". 
 - ![IMG_20240810_195022](https://github.com/user-attachments/assets/82927d2e-7c5a-42ca-88d6-8346a4b22d13)
 - ![IMG_20240818_104426](https://github.com/user-attachments/assets/0b0a5878-3db8-4b37-91a1-f5bc94072f92)
 ![IMG_20240818_104610](https://github.com/user-attachments/assets/fd3e34dc-258a-4696-aa3c-8ced7cf5b18b)
