@@ -167,6 +167,7 @@ through lens that he believes "guarantees the greatest reflection from Heaven on
 - Hired a PR firm for character assassination of those he judges to be future threats. Then he announces to his peers and followers that those affected by the PR campaigns are conceited, subversive, and dishonest schemers that do not know how to properly communicate.
 - Implanted a microchip in the right ear of a suspected far-right Chinese monk. When the monk complained to the authorities about hearing voices and experiencing headaches, he was sent to an insane asylum, where he lived for 15 years before dying from being deliberately starved. The microchip was removed from the monk after his death as part of a US-Russian trade secret.
 - Supplies Russian firearms and explosives to disenfranchised American ex-military for them to "lay waste to the American farmlands that the chumps can never own, as well as dashing the hopes and dreams of all the whores that fled from the chumps after having discovered how broke, inside and out, they all are."
+- Lures American lesbians to do his bidding via manipulation by Russian harlots that are sponsored by him.
 - ![IMG_20240810_195022](https://github.com/user-attachments/assets/82927d2e-7c5a-42ca-88d6-8346a4b22d13)
 - ![IMG_20240818_104426](https://github.com/user-attachments/assets/0b0a5878-3db8-4b37-91a1-f5bc94072f92)
 ![IMG_20240818_104610](https://github.com/user-attachments/assets/fd3e34dc-258a-4696-aa3c-8ced7cf5b18b)
